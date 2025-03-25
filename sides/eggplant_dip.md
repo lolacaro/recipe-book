@@ -11,10 +11,11 @@
 ## Instructions
 
 - Preheat oven to 200°C
-- Put wholes into eggplant with a fork
-- Roast eggplant in the oven for about 15 to 20 min (depends on size how fast they cook)
+- Put holes into eggplant with a fork
+- Roast eggplant in the oven for about 30 min (depends on size how fast they cook)
 - Let eggplant cool
 - Dice garlic into some smaller chunks
-- Free eggplant from skin
-- Put eggplant, garlic and cream cheese into a container and puree it
+- Remove skin from eggplant
+- Puree eggplant, garlic and cream cheese together
+- Add salt and pepper to taste
 - Enjoy with some bread or potatoes
