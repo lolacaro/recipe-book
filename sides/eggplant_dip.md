@@ -17,3 +17,4 @@
 - Dice garlic into some smaller chunks
 - Free eggplant from skin
 - Put eggplant, garlic and cream cheese into a container and puree it
+- Enjoy with some bread or potatoes
